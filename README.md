@@ -1,1 +1,1 @@
-# Stay safe everyone !!
+# Stay safe during this period everyone !!
